@@ -1,5 +1,3 @@
-**Raymund C Caringal**
-
 **Contact Information**
 
 **Email Address:**
